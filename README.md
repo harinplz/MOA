@@ -9,6 +9,14 @@
 
 <br/>
 
+### ✨🎉 SSAFY UCC 우수상(2위) 🎉✨
+> 여러분 모아를 기억해주세요
+[UCC 보러가기](https://www.youtube.com/watch?v=yBw4G0nSfm0)
+
+
+
+<br/>
+
 ## 팀원 소개
 
 |   **Name**   |               이진형👑                 |                노창현                |                  박진희                   |               이하린                |                 정효인                  |               황주원                |
